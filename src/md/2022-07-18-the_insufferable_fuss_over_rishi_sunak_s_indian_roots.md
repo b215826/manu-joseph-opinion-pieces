@@ -1,0 +1,101 @@
+# The insufferable fuss over Rishi Sunak’s Indian roots
+
+*2022-07-18*
+
+In the end, the waiter asks you about the meal and you say it was good.
+And he beams. I have never understood his glow. He behaves as though he
+cooked the meal. You may argue that his behaviour is a flicker of
+collective pride, a worker bee collecting an award for the hive. But
+that is nonsense, not because he probably hates his job, but because if
+you had instead told him the soup was disgusting, he would have said,
+“I’ll tell the chef." No one takes a blow for the team, but everyone is
+big on collective pride.
+
+This phenomenon is the underlying reason why I dread people who are said
+to be “of Indian origin" doing well, like achieving something big in an
+advanced economy. Naturally, then, I brace for the day Rishi Sunak
+becomes prime minister of the UK.
+
+On that day, urban India will erupt in celebration. Indians will say,
+explicitly, that they are proud. But about what? There will be
+statements and allusions that there is something about Indians, which
+makes them beat others; something mysterious inside us that is potent
+outside India and evidently does not work in India.
+
+But Sunak has very little to do with India. He was born in Southhampton.
+His parents were born in Africa. He has come so far in Britain because
+he is in a society where even conservatives, the very people who are
+meant to speak the minds of common people instead of pretending to be
+nice, do not discriminate between races. So he has done well because
+modern Britain is not like modern India.
+
+Usually, emotions have logical underpinnings. Even collective emotions
+have reasons. But civilizational pride in foreigners “of Indian origin"
+has none. It is plainly absurd. When Sunak triumphs and Indians gloat,
+what exactly are we rejoicing? That we have good genes, like him? That
+we emerge from a special post-Africa race that can create leaders like
+him? That we created a global coaching class from where Sunak emerged?
+That all Indians have the innate capacity to become prime minister of
+Britain? This sentiment, of civilizational pride, is absurd for many
+reasons, but the funniest reason it is vacuous is that Sunak’s bid to
+lead Britain was made possible by a man named Boris Johnson, whose
+leadership is proof that a great civilization does not make all its
+members great. Johnson, the UK’s outgoing prime minister, had to quit
+because of incompetence and scandals.
+
+When Venkataraman Ramakrishnan won the 2009 Nobel Prize in Chemistry,
+you can imagine the euphoria in India for a man who was born here but is
+identified as “British-American". He felt assailed by the sudden pride
+of millions of Indians and rebuked them for being absurd. Also, there
+was a rumour that he had accepted a job offer made by an Indian
+institution. He not only denied it, he also said, “I can categorically
+state that if they did so, I would refuse immediately." He then
+apparently felt bad and expressed regret for hurting Indians, who were
+merely desperate to feel proud.
+
+Indians rejoice the triumph of their own, or those whom they imagine as
+their own, only in the West. We won’t get that ecstatic if a person “of
+Indian origin" rose in, say, Africa. True racists are those who feel
+inferior, not superior. Racism does not only in reside in insults and
+abuses, which are actually very banal, unremarkable and lacking in
+conviction. A more potent form of racism is in worship—like how resident
+Indians look up to the West. In return, the West does not spend much
+time thinking about India or Indians. So there is an unequal
+relationship between Westerners of Indian origin and their resident
+Indian admirers. Westerners of Indian origin do not appear to be as
+proud of India as India is of them, nor do they consider themselves
+Indians in the first place. But when it suits them, they do play the
+India card. For instance, every now and then, I would see a writer or
+academic “of Indian origin" make a decent living out of interpreting
+India, and even Asia, to the West. But if some Trump supporter asks him
+to “go back to your home country", he would say that marvellous thing,
+“I was born in Houston."
+
+Also, in the face of an anti-immigration wave, like the one Donald Trump
+created, people of Indian origin attempt to include themselves among the
+destitute migrants. What their audience does not realize is that there
+is a difference between high-caste or wealthy Indian families that move
+to the West in search of prospects, and the African, Latin-American and
+middle-eastern poor who are often sneaked in. In a useful
+generalization, the typical US-bound Indian reaches there after a rigged
+race, as a consequence of his social equity or wealth, and therefore as
+a result of a big head start over most Indians. This migration is very
+different from what the West understands as migration.
+
+Community pride is not always ridiculous. For instance, take the
+national pride generated by Olympic triumphs. What the people of a
+country are saying is that their nation invested and created systems
+that helped talented athletes realize their full potential. But, as this
+column has argued before, Indians are not in a position to claim even
+this form of pride. Indian athletes who succeed at an international
+level mostly do so because they have been trained in the West, or they
+are so extraordinary that even the Indian government could not ruin
+their chances.
+
+Maybe, in our subterranean consciousness, we know that logical reasoning
+will deny us the sensation of collective pride; so we take care not to
+let reason interfere with our quest to appropriate a foreigner’s success
+as our own.
+
+*Manu Joseph is a journalist, novelist, and the creator of the Netflix
+series, ‘Decoupled’ *
