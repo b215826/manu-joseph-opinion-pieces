@@ -1,4 +1,4 @@
-# Manu Joseph's Opinion Pieces from *Mint*
+# Manu Joseph's Opinion Pieces From *Mint*
 
 Opinion pieces by [Manu Joseph][wiki] published on [*Mint*][mint] from
 2017-02-17 to 2025-05-11 as an ebook (ePub and Mobi).
