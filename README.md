@@ -5,7 +5,7 @@ Opinion pieces by [Manu Joseph][wiki] published on [*Mint*][mint] from
 
 > [!IMPORTANT]
 > No copyright infringement is intended. This material is provided solely
-> for educational and intellectual purposes.  All content and pieces are
+> for educational and intellectual purposes.  All material is
 > copyrighted by either the original author or the publisher.
 
 ## Technical details
